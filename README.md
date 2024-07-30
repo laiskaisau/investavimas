@@ -6,4 +6,4 @@ Svarbu atsakyti į klausimą, koks man yra laimingas ir prasmingas gyvenimas. Ta
 
 Yra geriau dirbti prasmingai ir tuo pačiu daugiau užsidirbti, nei galvoti kaip iš investavimo išspausti daugiau procentų. Daugiau užsidirbęs, galėsiu daugiau investavimui skirti. Taip greičiau tikslus pasieksiu. Žinoma tikslas neturi būti tik apibrėžta pinigų suma.
 
-Bankai, brokeriai, draudėjai yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. gerą finansų pararėją gali būti sunku rasti.
+Bankai, brokeriai, draudėjai yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. Gerą finansų pararėją gali būti sunku rasti.
