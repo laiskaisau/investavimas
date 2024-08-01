@@ -9,3 +9,6 @@ Panašu, kad investavime reikia pradėti nuo investavimo į save. Svarbu atsakyt
 O pinigų daugiau bus tik dirbant, tad yra svarbu dirbti prasmingą su iššukiais ir įdomų darbą, kad tobulėčiau. Manau tai savaime leis daugiau užsidirbti. Tai bus žymiai naudingiau, nei galvoti kaip iš investavimo išspausti daugiau procentų. Paprasčiausiai daugiau užsidirbęs, galėsiu daugiau investavimui skirti. Taip greičiau tikslus pasieksiu, kurie nebus tik apibrėžta pinigų suma.
 
 Tai kaip reikia investuoti?
+
+Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis tam tikros grąžos. Kuo žadama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso.
+
