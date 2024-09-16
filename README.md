@@ -12,3 +12,4 @@ Tai kaip reikia investuoti?
 
 Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso, bei neužmiršti, kad didesnis pelnas yra nebūtinai vertas didesnės rizikos. Pavyzdžiui, žinodamas kiek man užtenka ir tikslui esant beveik pasiektam, rizika gali būti mažesnė.
 
+Kadangi rezultatus labiausiai įtakoja asmens psichologinės ypatybės, klausimas kaip investuoti yra labai asmeninis sprendimas, kuriam nebūtinai tiks plačiai priimtinos ir visų siūlomos rekomendacijos. Kartais sprendimas bus neoptimialus pasauliui, bet man - geriausias. Turiu pažinti save žymiai geriau nei kiekvienas sau dažniausiai leidžiame, kad galėčiau lengviau rasti man tinkančius sprendimus.
