@@ -10,5 +10,5 @@ O pinigų daugiau bus tik dirbant, tad yra svarbu dirbti prasmingą su iššukia
 
 Tai kaip reikia investuoti?
 
-Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso.
+Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso, bei neužmiršti, kad didesnis pelnas yra nebūtinai vertas didesnės rizikos. Pavyzdžiui, žinodamas kiek man užtenka ir tikslui esant beveik pasiektam, rizika gali būti mažesnė.
 
