@@ -39,3 +39,5 @@ Rezultatas toks, kad man belieka surasti vieną mažų mokesčių ir biržoje pr
 Tada dar reikia surasti patikimą, tinkamą ir nebrangų finansinį tarpininką, kuris nupirks norimo fondo vienetus t.y. investuos į tūkstančius įmonių iš viso pasaulio. Man beliktų tik nesustoti.
 
 Šį investavimo būdą galiu modifikuoti pagal savo žinias, norus bei rizikos toleranciją. Tik reikia neužmiršti balanso tarp kainos, paprastumo ir t.t.
+
+Jei pradėčiau jausti nerimą dėl mano investicijų, galbūt jos man netinka? Gal sužinojau kažką naujo apie save?
