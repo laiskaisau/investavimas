@@ -18,13 +18,13 @@ Kadangi pinigų daugiau bus tik dirbant, tad yra svarbu dirbti prasmingą su iš
 
 Tai kaip reikia investuoti?
 
-Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas ar nuosavybės pirkimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso, bei neužmiršti, kad didesnis pelnas yra nebūtinai vertas didesnės rizikos. Pavyzdžiui, žinodamas kiek man užtenka ir tikslui esant beveik pasiektam, rizika gali būti mažesnė. Svarbu prisiminti, kad investavime užtenka yra sunkiau pasiekiama, nei dar.
+Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas ar nuosavybės pirkimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso, bei neužmiršti, kad didesnis pelnas yra nebūtinai vertas didesnės rizikos. Pavyzdžiui, žinodamas kiek man užtenka ir tikslui esant beveik pasiektam, rizika gali būti mažesnė. Svarbu prisiminti, kad investavime "užtenka" yra sunkiau pasiekiama, nei "dar".
 
 Vertėtų naudoti pinigus kurių šiuo metu ar artimoje ateity nereikės, kad nekiltų problemų dalį jų praradus.
 
-Kadangi rezultatus labiausiai įtakoja asmens psichologinės ypatybės, klausimas kaip investuoti yra labai asmeninis sprendimas, kuriam nebūtinai tiks plačiai priimtinos ir visų siūlomos rekomendacijos. Kartais sprendimas bus neoptimalus pasauliui, bet man - geriausias.
+Kadangi rezultatus labiausiai įtakoja asmens psichologinės ypatybės, klausimas kaip investuoti yra labai asmeninis sprendimas, kuriam nebūtinai tiks plačiai priimtinos ir visų siūlomos rekomendacijos.
 
-Niekas nežino ateities, tad yra logiška investuoti į viską t.y. į visą pasaulį. 
+Tiesa, kad niekas nežino ateities, tad yra logiška investuoti į viską t.y. į visą pasaulį. 
 
 Negaliu apžvelgti visko į ką galima investuoti, bet to yra neracionalu investuoti į visas priemones, tuo labiau, kad ne visos yra prieinamos, bet galimas kompromisas, kuris sąlyginai bus kaip investavimas į visas priemones. 
 
