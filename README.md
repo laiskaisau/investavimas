@@ -1,5 +1,7 @@
 # investavimas
 
+Skaitau, klausau ir bandau viską trumpai apibendrinti, kad neužmirščiau ir kitiems gal praverstų. Noriu kiek įmanoma trumpos ir aiškios apžvalgos, kuri tiktų keičiantis galimybėms. Informacija yra iš atminties, tad gali būti netiksli. Nėra nuorodų į šaltinius, tad ir pagrindimų.
+
 Bankai, brokeriai, draudėjai ir pan. yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. Gerą finansų patarėją gali būti sunku rasti. Galbūt valdant didelius pinigus, atsiras daugiau suinteresuotų ir tikrai gerų, kurie vadovausis aiškia ir atvira savo paslaugų kainodara, bet kaip žinoti ar tai garantuos jų kokybišką pagalbą ir rekomendacijas? Nemanau, kad užtektų būti patenkintu ir nesigilinant į šią temą, patarėjo paslaugą laikyti gera.
 
 Nenorėdamas blogiausiu atveju būti apgautas, ar norėdamas investavimu užsiimti savarankiškai, turiu pasigilinti, kad orientuočiausi šioje temoje. Akivaizdu reikia iš kažko mokytis, tik kiekvienas žmogus yra skirtingas, tad remdamasis kitų patarimais, nebūtinai sugebėsiu pasiekti gerų rezultatų. Turiu pažinti save ir suprasti kas man priimtina. Skaitymas ir įsivaizdavimas gali labai skirtis nuo praktikos, tad kažką nusprendus, reikia išbandyti pačiam, kad įsitikinčiau tinkamumu man. Pats investavimas gali būti toks kokio noriu ir paprastas, bet ir labai sudėtingas, tad turiu surasti man tinkantį, kad plano galėčiau laikytis. Manau investavimas yra ilgalaikė veikla, kuri tęsis visą mano gyvenimą, tad akivaizdu, kad sprendimas turi būti aiškus ir paprastas - kiek įmanoma automatinis, kad nereiktų galvoti ir priimti sprendimų kasdien. Deja ar sprendimas leis ramiai miegoti ir nekels panikos tikėtina paaiškės, kai susidursiu su sunkumais.  
@@ -13,3 +15,4 @@ Tai kaip reikia investuoti?
 Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis tam tikros grąžos. Kuo žadama ar planuojama didesnė grąža tuo didesnė rizika ne tik jos negauti, bet ir neatgauti paskolintų pinigų. Tad bet kuriuo atveju turiu ieškoti man priimtino balanso, bei neužmiršti, kad didesnis pelnas yra nebūtinai vertas didesnės rizikos. Pavyzdžiui, žinodamas kiek man užtenka ir tikslui esant beveik pasiektam, rizika gali būti mažesnė.
 
 Kadangi rezultatus labiausiai įtakoja asmens psichologinės ypatybės, klausimas kaip investuoti yra labai asmeninis sprendimas, kuriam nebūtinai tiks plačiai priimtinos ir visų siūlomos rekomendacijos. Kartais sprendimas bus neoptimalus pasauliui, bet man - geriausias.
+
