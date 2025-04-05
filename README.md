@@ -45,3 +45,5 @@ Man beliktų tik nesustoti. Investuojant ilgam, jei uždirbtos palūkanos invest
 Šį investavimo būdą galiu modifikuoti pagal savo žinias, norus bei rizikos toleranciją. Tik reikia neužmiršti balanso tarp kainos, paprastumo ir t.t.
 
 Jei pradėčiau jausti nerimą dėl mano investicijų, galbūt jos man netinka? Gal sužinojau kažką naujo apie save?
+
+Turiu neužmiršti ir mokesčių, nes jie visada yra nepriklausomai nuo mano pasirinkto sprendimo, be to gali kisti.
