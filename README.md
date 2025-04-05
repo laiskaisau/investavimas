@@ -26,7 +26,7 @@ Negaliu apžvelgti visko į ką galima investuoti, bet to yra neracionalu invest
 
 Paprasčiausias būdas yra investavimas į įmones, kurių akcijos yra viešai platinamos.
 
-Norint investuoti į visą pasaulį, reiškia turiu investuoti į visų šalių kurios dalyvauja akcijų rinkoje įmones.
+Norėdamas investuoti į visą pasaulį, reiškia turiu investuoti į visų šalių kurios dalyvauja akcijų rinkoje įmones.
 
 Šioje rinkoje dalyvaujančios įmonės yra grupuojamos į išsivysčiusių ar besivystančių šalių rinkas, bei skirstomos į dideles, vidutines ir mažas. 
 
