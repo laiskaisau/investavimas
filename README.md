@@ -16,3 +16,22 @@ Investavimo esmė, nepriklausomai nuo įrankio yra pinigų skolinimas tikintis t
 
 Kadangi rezultatus labiausiai įtakoja asmens psichologinės ypatybės, klausimas kaip investuoti yra labai asmeninis sprendimas, kuriam nebūtinai tiks plačiai priimtinos ir visų siūlomos rekomendacijos. Kartais sprendimas bus neoptimalus pasauliui, bet man - geriausias.
 
+Niekas nežino ateities, tad yra logiška investuoti į viską t.y. į visą pasaulį. 
+
+Negaliu apžvelgti visko į ką galima investuoti, bet to yra neracionalu investuoti į visas priemones, tuo labiau, kad ne visos yra prieinamos, bet galimas kompromisas, kuris sąlyginai bus kaip investavimas į visas priemones. 
+
+Paprasčiausias būdas yra investavimas į įmones, kurių akcijos yra viešai platinamos.
+
+Norint investuoti į visą pasaulį, reiškia turiu investuoti į visų šalių kurios dalyvauja akcijų rinkoje įmones.
+
+Šioje rinkoje dalyvaujančios įmonės yra grupuojamos į išsivysčiusių ar besivystančių šalių rinkas, bei skirstomos į dideles, vidutines ir mažas. 
+
+Tad kokį būdą be pasirinkčiau reikia, kad jis apimtų viską ką paminėjau dviejuose pastraipose prieš šią.
+
+Toliau man visą darbą palengvina dviejų tipų įmonės: kuriančios indeksus - įmonių sąrašus, kuriuose įmonės rikiuojamos pagal jų dydį rinkoje, bei įmonės kuriančios biržoje prekiaujamus fondus, kurie perka visų tuose indeksuose nurodytų įmonių akcijas pagal ten pateiktas proporcijas.
+
+Rezultatas toks, kad man belieka surasti vieną mažų mokesčių ir biržoje prekiaujamą fondą, kuris seka  indeksą, kuriame įtrauktos viso pasaulio įmonės, kurios atspindės visą pasaulio akcijų rinką, kuri kad ir su pertraukomis, bet nuolatos auga, nes pasaulis keičiasi ir tobulėja, kas ir atneša naudą man.
+
+Tada dar reikia surasti patikimą, tinkamą ir nebrangų tarpininką (brokerį), kuriam pateikus užsakymą, jis nupirks norimo fondo vienetus t.y. investuos į tūkstančius įmonių iš viso pasaulio. Man belieka nesustoti.
+
+Šį investavimo būdą galiu modifikuoti pagal savo žinias, norus bei rizikos toleranciją. Tik reikia neužmiršti balanso tarp kainos, paprastumo ir t.t.
