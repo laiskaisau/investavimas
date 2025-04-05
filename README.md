@@ -34,9 +34,11 @@ Tad kokį būdą be pasirinkčiau reikia, kad jis apimtų viską ką paminėjau 
 
 Toliau man visą darbą palengvina dviejų tipų įmonės: kuriančios indeksus - įmonių sąrašus, kuriuose įmonės rikiuojamos pagal jų dydį rinkoje, bei įmonės kuriančios biržoje prekiaujamus fondus, kurie perka visų tuose indeksuose nurodytų įmonių akcijas pagal ten pateiktas proporcijas.
 
-Rezultatas toks, kad man belieka surasti vieną mažų mokesčių ir biržoje prekiaujamą fondą, kuris seka  indeksą, kuriame įtrauktos viso pasaulio įmonės, kurios atspindės visą pasaulio akcijų rinką, kuri kad ir su pertraukomis, bet nuolatos auga, nes pasaulis keičiasi ir tobulėja, kas ir atneša naudą man.
+Rezultatas toks, kad man belieka surasti vieną mažų mokesčių ir biržoje prekiaujamą fondą, kuris seka  indeksą, bei reinvestuoja pajamas, kuriame įtrauktos viso pasaulio įmonės, kurios atspindės visą pasaulio akcijų rinką, kuri kad ir su pertraukomis, bet nuolatos auga, nes pasaulis keičiasi ir tobulėja, kas ir atneša naudą man.
 
-Tada dar reikia surasti patikimą, tinkamą ir nebrangų finansinį tarpininką, kuris nupirks norimo fondo vienetus t.y. investuos į tūkstančius įmonių iš viso pasaulio. Man beliktų tik nesustoti.
+Tada dar reikia surasti patikimą, tinkamą ir nebrangų finansinį tarpininką, kuris nupirks norimo fondo vienetus t.y. investuos į tūkstančius įmonių iš viso pasaulio.
+
+Man beliktų tik nesustoti. Investuojant ilgam, jei uždirbtos palūkanos investuojamos ir nenaudojamos, uždirbti pinigai pradeda uždirbti pinigus. Kuo tai ilgiau tęsiasi  tuo uždarbis sparčiau augs. 
 
 Šį investavimo būdą galiu modifikuoti pagal savo žinias, norus bei rizikos toleranciją. Tik reikia neužmiršti balanso tarp kainos, paprastumo ir t.t.
 
