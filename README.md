@@ -4,7 +4,7 @@ Skaitau, klausau ir bandau viską trumpai apibendrinti, kad neužmirščiau ir k
 
 Viską turiu pradėti ne nuo produkto, ką dažnas daro galvodamas šia tema, o nuo pagrindų.
 
-Bankai, brokeriai, draudėjai ir pan. yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. Gerą finansų patarėją gali būti sunku rasti. Galbūt valdant didelius pinigus, atsiras daugiau suinteresuotų ir tikrai gerų, kurie vadovausis aiškia ir atvira savo paslaugų kainodara, bet kaip žinoti ar tai garantuos jų kokybišką pagalbą ir rekomendacijas? Nemanau, kad užtektų būti patenkintu ir nesigilinant į šią temą, patarėjo paslaugą laikyti gera.
+Bankai, brokeriai, draudėjai ir pan. yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. Gerą finansų patarėją gali būti sunku rasti. Galbūt valdant didelius pinigus, atsiras daugiau suinteresuotų ir tikrai gerų, kurie vadovausis aiškia ir atvira savo paslaugų kainodara,neatsižvelgdami į rezultatus, bet kaip žinoti ar tai garantuos jų kokybišką pagalbą ir rekomendacijas? Nemanau, kad užtektų būti patenkintu ir nesigilinant į šią temą, patarėjo paslaugą laikyti gera.
 
 Patarėjas gali praversti dėl galbūt per siauro mano mąstymo, sugalvotų minčių patvirtinimo  ieskojimo, emocijų, per didelio pasitikėjimo savimi.
 
