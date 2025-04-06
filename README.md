@@ -6,7 +6,7 @@ Viską turiu pradėti ne nuo produkto, ką dažnas daro galvodamas šia tema, o 
 
 Bankai, brokeriai, draudėjai ir pan. yra tik produktų pardavėjai. Jie nesuinteresuoti mano gerove, tad nesigilins į mano poreikius. Gerą finansų patarėją gali būti sunku rasti. Galbūt valdant didelius pinigus, atsiras daugiau suinteresuotų ir tikrai gerų, kurie vadovausis aiškia ir atvira savo paslaugų kainodara, neatsižvelgdami į rezultatus, bet kaip žinoti ar tai garantuos jų kokybišką pagalbą ir rekomendacijas? Nemanau, kad užtektų būti patenkintu ir nesigilinant į šią temą, patarėjo paslaugą laikyti gera.
 
-Patarėjas gali praversti dėl galbūt per siauro mano mąstymo, sugalvotų minčių patvirtinimo  ieskojimo, emocijų, per didelio pasitikėjimo savimi.
+Patarėjas gali praversti dėl galbūt per siauro mano mąstymo, sugalvotų minčių patvirtinimo  ieškojimo, emocijų, per didelio pasitikėjimo savimi.
 
 Geras patarėjas turėtų suprasti mane labai gerai. Tik tada galėtų pasiūlyti tinkamą sprendimą. Geras patarėjas užduotų daug klausimų apie mane, bet nepasakotų koks jis ir jo įmonė gera. Geras patarėjas pamokytų mane. Jo konsultacija neprasidėtų nuo produkto.
 
