@@ -50,4 +50,4 @@ Paprastumu ir mažais mokesčiai, taikau į vidutinybę, kas per ilgus metus lem
 
 Jei pradėčiau jausti nerimą dėl mano investicijų, galbūt jos man netinka? Gal sužinojau kažką naujo apie save?
 
-Turiu neužmiršti ir mokesčių, nes jie visada yra nepriklausomai nuo mano pasirinkto sprendimo, be to gali kisti.
+Turiu neužmiršti mokesčių, nes jie visada yra nepriklausomai nuo mano pasirinkto sprendimo, be to gali kisti. Plius praeities rezultatai negarantuoja ateities rezultatų.
